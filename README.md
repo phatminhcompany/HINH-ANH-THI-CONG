@@ -1,4 +1,3 @@
-![xelu banh lop 16T sakaimoi 2023](https://user-images.githubusercontent.com/113705782/190857742-61124735-2684-45b9-a306-7dffecb6b680.jpg)
 # HINH-ANH-THI-CONG
 ![Screenshot_20220524-104336_Zalo](https://user-images.githubusercontent.com/113705782/190855938-4cdc7a9e-73fa-450a-9112-e53f35aed180.jpg)
 ![Screenshot_20220524-104347_Zalo](https://user-images.githubusercontent.com/113705782/190855939-6856602c-8417-43a9-98a2-9eddcc596fe6.jpg)
