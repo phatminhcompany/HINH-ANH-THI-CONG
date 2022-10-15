@@ -253,4 +253,7 @@ https://user-images.githubusercontent.com/113705782/192100890-eb176217-58dc-436f
 ![z3802598853751_1f281d13564a26df91e59b524121f8fa](https://user-images.githubusercontent.com/113705782/195991003-7a272bfa-d76d-4e5e-8fb8-c588e1788230.jpg)
 ![z3802598862295_75cc5dee5c2f58ea1472e2f4af5da9e5](https://user-images.githubusercontent.com/113705782/195991010-3ca5df75-98a0-4677-8f75-7304601d3469.jpg)
 ![z3802598872407_9d2c0f0df56d7a46132afdfa10b0ddd9](https://user-images.githubusercontent.com/113705782/195991013-6a1ddd37-afef-4529-894a-ba774194db5c.jpg)
-
+# CONG TY XAY LAP MIEN NAM THẢM TRONG TP.VI THANH
+![z3802803932510_ab8e4971669eff3e5b5937adaae334dc](https://user-images.githubusercontent.com/113705782/195993248-ced4aaea-2833-4c17-81b7-2a79cc281876.jpg)
+![z3802803951980_93a3b875a152b31de08588cd7f5b7527](https://user-images.githubusercontent.com/113705782/195993259-1849d207-715d-4f90-b87d-747898eed7ab.jpg)
+![z3802803957424_2772c5ab0db9d3d6720cf63c8e01d28b](https://user-images.githubusercontent.com/113705782/195993261-d32947db-52c7-4685-9e58-4284aaab948d.jpg)
