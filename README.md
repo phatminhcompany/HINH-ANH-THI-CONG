@@ -13,6 +13,7 @@
 # NOVALAND HỒ TRÀM
 ![Screenshot_20220710-173604_Zalo](https://user-images.githubusercontent.com/113705782/190860909-c6da7efc-883e-4c8a-b90f-1cb994ebb830.jpg)
 ![Screenshot_20220710-173611_Zalo](https://user-images.githubusercontent.com/113705782/190860920-1fad084f-9929-4948-84cb-6217624cbf20.jpg)
+# SÀI GÒN TRUNG LƯƠNG
 ![Screenshot_20220710-173655_Zalo](https://user-images.githubusercontent.com/113705782/190860922-91758619-98dd-45d1-9c22-e66709128e42.jpg)
 ![Screenshot_20220710-173702_Zalo](https://user-images.githubusercontent.com/113705782/190860926-6960c98c-cfe7-4eee-b745-4b69e1ab6f4b.jpg)
 ![Screenshot_20220710-173708_Zalo](https://user-images.githubusercontent.com/113705782/190860928-ad752576-25f2-4661-9782-84e2bee1bb4b.jpg)
