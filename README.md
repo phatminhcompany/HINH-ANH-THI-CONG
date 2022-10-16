@@ -10,6 +10,7 @@
 ![Screenshot_20220815-113303_Zalo](https://user-images.githubusercontent.com/113705782/190860859-fa48db48-64b9-43c7-b10b-9f874e643d63.jpg)
 ![Screenshot_20220815-113309_Zalo](https://user-images.githubusercontent.com/113705782/190860867-2350a1f9-d850-4bb3-bf37-cbfdf1b1644e.jpg)
 ![Screenshot_20220815-113325_Zalo](https://user-images.githubusercontent.com/113705782/190860870-c70e41e1-38c4-4b0e-938f-6ec52c7cde46.jpg)
+# NOVALAND HỒ TRÀM
 ![Screenshot_20220710-173604_Zalo](https://user-images.githubusercontent.com/113705782/190860909-c6da7efc-883e-4c8a-b90f-1cb994ebb830.jpg)
 ![Screenshot_20220710-173611_Zalo](https://user-images.githubusercontent.com/113705782/190860920-1fad084f-9929-4948-84cb-6217624cbf20.jpg)
 ![Screenshot_20220710-173655_Zalo](https://user-images.githubusercontent.com/113705782/190860922-91758619-98dd-45d1-9c22-e66709128e42.jpg)
