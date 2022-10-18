@@ -97,12 +97,7 @@
 # AQUACITY . LONG HƯNG . ĐỒNG NAI
 ![Screenshot_20220710-180152_Zalo](https://user-images.githubusercontent.com/113705782/190860946-d8b2574c-d586-40e7-9ed9-885105370b5a.jpg)
 ![Screenshot_20220710-173230_Zalo](https://user-images.githubusercontent.com/113705782/190855980-8ca637d3-0e88-4295-af0f-cd8d4d5ffda4.jpg)
-# KDC CẦU SƠN . QUẬN BÌNH THẠNH .TP.HCM
-![Screenshot_20220710-180214_Zalo](https://user-images.githubusercontent.com/113705782/190860948-34b30109-54e0-4471-adf9-21c63d50c4af.jpg)
-# KDC CÁT LÁI 82 HA. QUẬN 2 TP.THỦ ĐỨC .TP.HCM
-![Screenshot_20220710-180312_Zalo](https://user-images.githubusercontent.com/113705782/190860956-d0ff8cb9-5016-4d97-bea1-e6f3f763e3bc.jpg)
-![Screenshot_20220710-180321_Zalo](https://user-images.githubusercontent.com/113705782/190860958-c0df2a79-0b4b-4ec7-ae94-5034797d57bf.jpg)
-![Screenshot_20220710-180451_Zalo](https://user-images.githubusercontent.com/113705782/190860971-4ff4e49e-5d0f-4cda-b625-df4e7dd6018d.jpg)
+
 # CAO TỐC BẾN LỨC LONG THÀNH
 ![Screenshot_20220711-142343_Zalo](https://user-images.githubusercontent.com/113705782/190860975-166aac75-0aee-43d1-802d-7f5669ba1684.jpg)
 ![Screenshot_20220711-142356_Zalo](https://user-images.githubusercontent.com/113705782/190860981-09fa4e31-a527-4c88-8f01-af2567f6430a.jpg)
@@ -147,17 +142,38 @@
 # CẢNG RAU QUẢ . QUẬN 7
 ![Screenshot_20220717-104141_Zalo](https://user-images.githubusercontent.com/113705782/190861225-503fab88-5c50-41b4-a499-f59a92354f14.jpg)
 ![Screenshot_20220717-104148_Zalo](https://user-images.githubusercontent.com/113705782/190861228-b32dc7d5-512a-4b32-89fe-7998c350527c.jpg)
-# XA LỘ HÀ NỘI  CII E&C
+# XA LỘ HÀ NỘI  Q2 . TP THỦ ĐỨC . TP HỒ CHÍ MINH
 ![Screenshot_20220710-105757_Zalo](https://user-images.githubusercontent.com/113705782/190855953-4cdd6878-bba8-427d-aceb-5d5bc10a97e5.jpg)
+# NGUYỄN DUY TRINH Q9 . TP THỦ ĐỨC . TP HỒ CHÍ MINH
+![z3803136778580_270b3a58994a4aea0bfa7191d8398d8b](https://user-images.githubusercontent.com/113705782/196428750-f1a64ee5-a27e-4f55-bb3d-8534583bb9f0.jpg)
+![z3809409726815_29b267de1e0d7e6d0f346d4c251fbb49](https://user-images.githubusercontent.com/113705782/196428764-b8a15b05-7a06-4845-a6d6-264b28f36ce0.jpg)
+# KDC CẦU SƠN . QUẬN BÌNH THẠNH .TP.HCM
+![Screenshot_20220710-180214_Zalo](https://user-images.githubusercontent.com/113705782/190860948-34b30109-54e0-4471-adf9-21c63d50c4af.jpg)
+# KDC CÁT LÁI 82 HA. QUẬN 2 TP.THỦ ĐỨC .TP.HCM
+![Screenshot_20220710-180312_Zalo](https://user-images.githubusercontent.com/113705782/190860956-d0ff8cb9-5016-4d97-bea1-e6f3f763e3bc.jpg)
+![Screenshot_20220710-180321_Zalo](https://user-images.githubusercontent.com/113705782/190860958-c0df2a79-0b4b-4ec7-ae94-5034797d57bf.jpg)
+![Screenshot_20220710-180451_Zalo](https://user-images.githubusercontent.com/113705782/190860971-4ff4e49e-5d0f-4cda-b625-df4e7dd6018d.jpg)
 # KDC TUYẾT TRANG CỦ CHI TP.HCM
 ![Screenshot_20220710-172410_Zalo](https://user-images.githubusercontent.com/113705782/190855954-78316b7a-2ddc-476a-8018-8c107589cdf2.jpg)
 ![Screenshot_20220710-172757_Zalo](https://user-images.githubusercontent.com/113705782/190855961-b1352172-cedf-4e3f-b236-4c6ea9e5e999.jpg)
 ![Screenshot_20220710-172808_Zalo](https://user-images.githubusercontent.com/113705782/190855965-d3f5cc2e-cc73-4e26-9b05-2be148a7a609.jpg)
+# CITYLAND  , GÒ VẤP , TP.HCM
+![cityland GòVấp](https://user-images.githubusercontent.com/113705782/196425495-0d3a1b13-cac1-4ab3-9c8e-9077e33e061d.jpg)
+![cityland GòVấp1](https://user-images.githubusercontent.com/113705782/196425505-58187c11-7cf2-4143-80de-ba2cea8d9ddd.jpg)
 # NHÀ XƯỞNG CHO THUÊ BICONSI .THỦ DẦU MỘT .BÌNH DƯƠNG
 ![Screenshot_20220710-172918_Zalo](https://user-images.githubusercontent.com/113705782/190855966-2028b3ae-2073-42f5-8a99-da38b905d7b4.jpg)
 # BÌNH DƯƠNG
 ![Screenshot_20220814-225058_Zalo](https://user-images.githubusercontent.com/113705782/190860834-18451282-7d6c-4fac-a4f2-e57e79d2b929.jpg)
-# KCN PROTRADE ASCENDAS VIETNAM SINGAPORE
+# NHÀ XƯỞNG CHO THUÊ HOÀNG HÙNG .HỘI NGHĨA . TX  TÂN UYÊN
+![z3805395103136_b0eaef0b6163ec58e341f5dd9575fa88](https://user-images.githubusercontent.com/113705782/196422647-9e97871b-cfe8-4e98-ae57-f3bb12c8a437.jpg)
+![z3805395108322_52c0412039532b15a9437091dc5e8855](https://user-images.githubusercontent.com/113705782/196422664-1d1ca735-ce3a-49a9-8dc9-7c7a6044f1a2.jpg)
+# NHÀ XƯỞNG CHO THUÊ HOÀNG HÙNG .BÀO BÀNG . TX  TÂN UYÊN
+![nha xuong cho thue Hoanghung1](https://user-images.githubusercontent.com/113705782/196423296-41eb8d9b-33cf-49e8-bee3-d7833259f18d.jpg)
+![nha xuong cho thue Hoanghung2](https://user-images.githubusercontent.com/113705782/196423309-53cb891f-ce81-4e65-907c-7951bf6ea46e.jpg)
+![nha xuong cho thue Hoanghung3](https://user-images.githubusercontent.com/113705782/196423329-6ca6a5c3-addb-45ce-b6dd-4d4c424511fe.jpg)
+# ĐƯỜNG D14  , DĨ AN , BÌNH DƯƠNG
+![DI4An Bình Dương](https://user-images.githubusercontent.com/113705782/196425612-10e74290-05d0-43e4-b3eb-ec84b9e5d38b.jpg)
+# KCN PROTRADE ASCENDAS VIETNAM SINGAPORE 
 ![z3725976704412_3ddab5fd9127938121b424e56ce918df](https://user-images.githubusercontent.com/113705782/190855055-e684fbb4-b793-4672-a70e-e7c9a90a45c8.jpg)
 ![z3726080711722_247a1fff4cb839791fa7bbbd37c55ee3](https://user-images.githubusercontent.com/113705782/190855057-2c2cfd66-aace-4cfb-a8e2-d2f527268c0f.jpg)
 ![z3726323077714_1a36ce72713bd58ee8e0666888ff005a](https://user-images.githubusercontent.com/113705782/190855059-353b25c9-8f50-4625-bbf0-3c202ce6961c.jpg)
@@ -194,11 +210,53 @@ https://user-images.githubusercontent.com/113705782/192100890-eb176217-58dc-436f
 ![z3742700184445_541da163be88d4852f06a0995d3c4fec](https://user-images.githubusercontent.com/113705782/192100922-e3171c72-96aa-4241-8f88-3be13593af12.jpg)
 ![z3742700185988_459fccfe146ac3d75a05c79caa18a3fa](https://user-images.githubusercontent.com/113705782/192100923-c1e7f811-1c78-4a2c-bd80-ea7d42ba7c13.jpg)
 ![z3742700190182_629667b16ab0d80e703977b5e90da41f](https://user-images.githubusercontent.com/113705782/192100924-a24b2155-5fc3-4cf9-87f9-310d1f5adf09.jpg)
+# TRUNG TÂM HÀNH CHÍNH BẮC TÂN UYÊN . BÌNH DƯƠNG
+![TTHC BAC TÂN UYÊN](https://user-images.githubusercontent.com/113705782/196427061-1bdf8455-56ff-4f82-b95d-cab5d4f49246.jpg)
+![z3801528110111_8057f65f24df345b676cd4761e69a75f](https://user-images.githubusercontent.com/113705782/196427077-9af5e657-0eac-429d-8b2f-1dbf24bde540.jpg)
+![z3801824128256_4dd217e91df1ef79ed99fffc22d32ab4](https://user-images.githubusercontent.com/113705782/196427087-b0ef4936-56a1-4819-9024-ce971bb28014.jpg)
+![z3801824139552_01afb66cb3879db71cb994c7dd876965](https://user-images.githubusercontent.com/113705782/196427094-6d8f2c9d-c6ce-449b-a658-48dedf221fcd.jpg)
+![z3801853458815_629e815060853b0f7bdb7f979ad7782c](https://user-images.githubusercontent.com/113705782/196427101-bb3f647a-cfed-461c-80a3-f047ce60df4e.jpg)
+![z3801853491877_a176a8bb600b73f1530612276e49ee65](https://user-images.githubusercontent.com/113705782/196427105-3504b87a-a598-4148-ad89-5dcda3f562af.jpg)
+![z3803140075983_dc671efb9857d136fb59cbc9ca382d2b](https://user-images.githubusercontent.com/113705782/196427110-2a518742-33c3-42da-877d-c84f8abaf233.jpg)
+![z3803140077952_42a35837374f98eab7aba04aa8263ac8](https://user-images.githubusercontent.com/113705782/196427116-33bca275-9ac0-4add-a814-3b059eb8cdb7.jpg)
+![z3805226245147_f7627b92c67e70131bd72d8a3c6f9622](https://user-images.githubusercontent.com/113705782/196427119-6f657201-0e7c-4035-88fc-e91ee914742e.jpg)
+![z3805226246141_bd6007d6e00b2a7fde37b8d3e35f933d](https://user-images.githubusercontent.com/113705782/196427128-5b9cdd48-abe2-48e1-bfd9-a16637581d39.jpg)
+![z3805226246428_4739698067d60046d55a88db656275a6](https://user-images.githubusercontent.com/113705782/196427138-d32ea104-d4b5-4c18-abd6-78489be5aef8.jpg)
+![z3805226246788_e85d7ae3ddd421426b28a38e4f720117](https://user-images.githubusercontent.com/113705782/196427144-a01917c8-1d92-4b7e-b987-425f2e064c15.jpg)
+![z3805226247144_f77466556d05d3da67187f71fdb2c4d0](https://user-images.githubusercontent.com/113705782/196427149-8ac3b80e-ce15-4f72-aedb-68edaa77b7f7.jpg)
+![z3805226248123_c5355162a5f611bc66e6407510348fb1](https://user-images.githubusercontent.com/113705782/196427152-96c4ba42-760e-4b5b-808f-cf8ddae44353.jpg)
+![z3806395729176_1f1b359212d82c6f03693a16036fd792](https://user-images.githubusercontent.com/113705782/196427156-366c5853-71e3-470d-a694-afc24d330a28.jpg)
+![z3806395751720_30aaf6e28b65be6a2e45bf33f4240b40](https://user-images.githubusercontent.com/113705782/196427163-f92497b8-ccc3-49d7-8a5a-eccbd6c4b8ab.jpg)
+![z3806395759853_7238d06322a6024cc200220a477734d9](https://user-images.githubusercontent.com/113705782/196427169-eaa7a17d-56c9-4551-8cf2-216b78a53822.jpg)
+![z3806395759943_5af25ea6e748e94facdf87aef56448b0](https://user-images.githubusercontent.com/113705782/196427173-78a0d35d-1c04-4444-81ed-7fc2e878cf4f.jpg)
+![z3806395772133_04e14024243a832a55ec31ebb21f8fe2](https://user-images.githubusercontent.com/113705782/196427174-50735542-3e72-46dc-939a-3d4086cbf4af.jpg)
+![z3806395783510_e28a3c04bab2186244b2ae5edee3191f](https://user-images.githubusercontent.com/113705782/196427176-5156a536-2423-462a-b3a1-913364724cd6.jpg)
+![z3806395789893_600a3a65240964d4db9fae137e5282a4](https://user-images.githubusercontent.com/113705782/196427179-7c9d3f6e-347a-4913-a296-fe44ff1880c0.jpg)
+![z3806403813858_c33b0aa73c9f5da88f5d3160efdcfdc5](https://user-images.githubusercontent.com/113705782/196427186-debc1631-b019-4a03-9fc5-dcaca5cf70da.jpg)
+# KCN VSIP 2 MỞ RỘNG
+![kcn visip2 morong](https://user-images.githubusercontent.com/113705782/196427729-5da7ed80-5144-4d12-8b81-f6d45a0375e6.jpg)
+# KHU NHÀ Ỡ THUẬN LỢI 2 , TX BẾN CÁT , BÌNH DƯƠNG
+![z3801043581240_befca4c25356e1029d6b1dd6b69aadd5](https://user-images.githubusercontent.com/113705782/196429232-0fb4c6e2-2172-4df1-864f-f87f07bd3f65.jpg)
+![z3801043609983_d63989360e34cb8d68acd841899e9cca](https://user-images.githubusercontent.com/113705782/196429242-566869b4-9810-429e-936c-08b11094c6bc.jpg)
+![z3802177020231_b22b947693eefb7f387e5a45b01cd5b2](https://user-images.githubusercontent.com/113705782/196429243-4be23811-290a-41f3-ab41-8533c5244087.jpg)
+![z3803257124313_b264e303e8ad48e6b79102a71f1fc987](https://user-images.githubusercontent.com/113705782/196429248-5e43ec3b-c44e-4384-a82a-56d2ac6636ee.jpg)
+![z3804117391431_4dddc254998b0543471022e8ebcce1da](https://user-images.githubusercontent.com/113705782/196429250-dfd3db4b-7dd2-4b37-ac4c-c2896fd117ea.jpg)
+![z3805544872077_1586e5609a0d52f1d8779b10231a6133](https://user-images.githubusercontent.com/113705782/196429256-fa0114bf-7f9c-4346-b4e6-1e04aeed65e6.jpg)
+![z3808207663604_b6fef17c2dac8d8420e1d151afb1ec2c](https://user-images.githubusercontent.com/113705782/196429258-8de5ef29-059e-4ce5-ae0c-b26b45052c11.jpg)
 # KDC GALAXY LONG THƯỢNG . CẦN GIUỘC . LONG AN
 ![z3741567357530_d0485bd16013723bda173a8a6946ebf9](https://user-images.githubusercontent.com/113705782/192100914-58bb2ade-0065-4216-a1db-76ce327464aa.jpg)
 ![z3744067049485_c28e7a6ef21b09442b936f326368ddea](https://user-images.githubusercontent.com/113705782/192100926-a2620570-4ea0-4dbd-b107-36b43e9e47bb.jpg)
 ![z3746871129027_950ce7a89a59f4e8d925acc5e203676d](https://user-images.githubusercontent.com/113705782/192100933-ef410037-9eb8-4479-83d7-1025b4a4ad20.jpg)
 ![z3746871156438_3ca4a9ba3309edc395ec7e119c61ec16](https://user-images.githubusercontent.com/113705782/192100934-4330be6e-b2ec-4178-b45b-53a747ea0943.jpg)
+# KCN XUYÊN Á . ĐỨC HOÀ . LONG AN
+![z3803217123822_c3182838ea872e44240992a778528a6b](https://user-images.githubusercontent.com/113705782/196428350-181c874f-7264-4a36-996f-7a911dfef605.jpg)
+![z3803217127346_dc305f16a692065b4f105768a809c264](https://user-images.githubusercontent.com/113705782/196428364-0ba233f6-5699-476b-b7bd-99ff748ff148.jpg)
+![z3805397480448_c6810689a0bca6728f35e8e55bfbafbd](https://user-images.githubusercontent.com/113705782/196428369-fc982176-9076-4848-937c-e6ad51f4e3ba.jpg)
+![z3805397502370_53d0b8b2daea4730c6d4de4036c16299](https://user-images.githubusercontent.com/113705782/196428371-b22ec787-0f50-4627-a391-af3be8c0bff8.jpg)
+![z3805397504989_499d0c24fc39c4849c32361d4efd11b4](https://user-images.githubusercontent.com/113705782/196428376-7f24f6a9-1ccf-403c-a2fa-038fd877422e.jpg)
+![z3806563182103_9878bfddc727e08ed23ef316fd64ca3d](https://user-images.githubusercontent.com/113705782/196428384-4440b456-6337-4ee0-8189-fbad3a3b4aeb.jpg)
+![z3808183491637_23a7a3b832321d68407a7b09cf56d427](https://user-images.githubusercontent.com/113705782/196428388-2e236136-3b53-4f07-926c-ae71f7ace1a8.jpg)
+
 # 61C HAU GIANG
 ![z3802598879866_66398b615968c5f76149265b4df5713e](https://user-images.githubusercontent.com/113705782/195990704-13108954-51d1-4bf7-83eb-4ca3dbc35999.jpg)
 ![z3802598891209_8c9d471c40405c318fc833a379a59b74 (1)](https://user-images.githubusercontent.com/113705782/195990706-f3a3853c-9f0f-4f8e-a07e-231a48d64676.jpg)
@@ -211,13 +269,32 @@ https://user-images.githubusercontent.com/113705782/192100890-eb176217-58dc-436f
 ![z3802598961320_901b63341ec76cf4a7ccf6286ffa43b0](https://user-images.githubusercontent.com/113705782/195990717-2af03b6b-b9b1-4e3a-84e4-d201b40e7b44.jpg)
 ![z3802598976797_51870917e791e3b5af00e33109c3334b](https://user-images.githubusercontent.com/113705782/195990718-b4e5b989-4515-4af4-ad55-213cd8960c89.jpg)
 ![z3802598986610_3cc565a4df43f8a3c3e6ff19d7d7e86e](https://user-images.githubusercontent.com/113705782/195990720-503bda9b-5c73-42fc-b273-43e63e2724a4.jpg)
+# CÔNG TY XÂY LẮP MIỀN NAM : NGUYỄN HUỆ VÀ LÝ THƯỜNG KIỆT TP.VI THANH . TỈNH HẬU GIANG. 
+![z3802803932510_ab8e4971669eff3e5b5937adaae334dc](https://user-images.githubusercontent.com/113705782/195993248-ced4aaea-2833-4c17-81b7-2a79cc281876.jpg)
+![z3802803951980_93a3b875a152b31de08588cd7f5b7527](https://user-images.githubusercontent.com/113705782/195993259-1849d207-715d-4f90-b87d-747898eed7ab.jpg)
+![z3802803957424_2772c5ab0db9d3d6720cf63c8e01d28b](https://user-images.githubusercontent.com/113705782/195993261-d32947db-52c7-4685-9e58-4284aaab948d.jpg)
 # CA MAU
 ![z3802598834249_9d53925e67d8631e9d0ee526047f8f59](https://user-images.githubusercontent.com/113705782/195990990-166b6226-9ad6-4244-a7e7-ab32697e52c4.jpg)
 ![z3802598842914_b8ff7a258232b4cce5c62621f1ddc840](https://user-images.githubusercontent.com/113705782/195990997-c104844f-f950-450e-98e3-1225cf22d364.jpg)
 ![z3802598853751_1f281d13564a26df91e59b524121f8fa](https://user-images.githubusercontent.com/113705782/195991003-7a272bfa-d76d-4e5e-8fb8-c588e1788230.jpg)
 ![z3802598862295_75cc5dee5c2f58ea1472e2f4af5da9e5](https://user-images.githubusercontent.com/113705782/195991010-3ca5df75-98a0-4677-8f75-7304601d3469.jpg)
 ![z3802598872407_9d2c0f0df56d7a46132afdfa10b0ddd9](https://user-images.githubusercontent.com/113705782/195991013-6a1ddd37-afef-4529-894a-ba774194db5c.jpg)
-# CONG TY XAY LAP MIEN NAM THẢM TRONG TP.VI THANH
-![z3802803932510_ab8e4971669eff3e5b5937adaae334dc](https://user-images.githubusercontent.com/113705782/195993248-ced4aaea-2833-4c17-81b7-2a79cc281876.jpg)
-![z3802803951980_93a3b875a152b31de08588cd7f5b7527](https://user-images.githubusercontent.com/113705782/195993259-1849d207-715d-4f90-b87d-747898eed7ab.jpg)
-![z3802803957424_2772c5ab0db9d3d6720cf63c8e01d28b](https://user-images.githubusercontent.com/113705782/195993261-d32947db-52c7-4685-9e58-4284aaab948d.jpg)
+# NHÀ XƯỞNG LOGISTIC VALLEY LÔ T1~T10, ĐƯỜNG SỐ 04, KHU CÔNG NGHIỆP AN PHƯỚC, XÃ AN PHƯỚC, LONG THÀNH , ĐỒNG NAI
+![2256df36a37f4f21166e](https://user-images.githubusercontent.com/113705782/196424186-2a94b7e9-9ac3-41e3-96f0-06ed7140507a.jpg)
+![hinhanhthicong](https://user-images.githubusercontent.com/113705782/196424202-1deb8471-207f-4ff3-87a4-f10eb3e24545.jpg)
+![hinhanhthicong1](https://user-images.githubusercontent.com/113705782/196424216-eafc12f3-6b47-4213-8b5f-7dca2d8d69c2.jpg)
+![hinhanhthicong2](https://user-images.githubusercontent.com/113705782/196424230-1ec06b9b-ac58-42e6-ad49-09d256c11fa2.jpg)
+![hinhanhthicong3](https://user-images.githubusercontent.com/113705782/196424237-39686039-415a-4ca9-a378-a0aaf4c744d4.jpg)
+![hinhanhthicong5](https://user-images.githubusercontent.com/113705782/196424257-5a98c410-79d3-43c6-b3d0-f34a866383ef.jpg)
+ ![hinhanhthicong8](https://user-images.githubusercontent.com/113705782/196424315-7e69aeab-652b-4790-8345-d0ce303f3450.jpg)
+![hinhanhthicong6](https://user-images.githubusercontent.com/113705782/196424273-2a367c0b-53d1-4d76-8075-ba4d938315c0.jpg)
+![hinhanhthicong7](https://user-images.githubusercontent.com/113705782/196424292-50d0c6bd-ad67-4f42-bfa1-a5ae9851a157.jpg)
+# SWANBAY & SWANPARK  , NHƠN TRẠCH , ĐỒNG NAI
+![swanbay nhơn trạch](https://user-images.githubusercontent.com/113705782/196426083-8396d9ad-9a5a-42fd-a6e6-bb2ea0abc72a.jpg)
+![swanbay nhơn trạch1](https://user-images.githubusercontent.com/113705782/196426099-fca117b1-9750-4809-8638-f1c34bc23928.jpg)
+# CẦU CHÉO , TIỀN GIANG
+![caucheo tiengiang](https://user-images.githubusercontent.com/113705782/196425314-9ecdc6ac-a1a0-4adb-9d62-e4c1fe26d1fd.jpg)
+# NHÀ XƯỞNG CÔNG TY HANTEX  , TRẢNG BÀNG , TÂY NINH
+![z3803192906208_07b02c02709099332b344529ab5efc9f](https://user-images.githubusercontent.com/113705782/196430036-5453722f-b250-4a10-9abc-073d26b7a2b7.jpg)
+![z3803206530168_9e3b00e75927dee31a86c883738bff44](https://user-images.githubusercontent.com/113705782/196430045-57f19068-0fda-4c5e-aabd-8e740868ced3.jpg)
+![z3803904982562_14b4e703e4d8bd92e56964ea2af3e442](https://user-images.githubusercontent.com/113705782/196430050-59cff2fe-7f26-42bf-965b-de69eb5008b6.jpg)
