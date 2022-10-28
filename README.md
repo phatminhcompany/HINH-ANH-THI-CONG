@@ -205,6 +205,16 @@
 ![196427176-5156a536-2423-462a-b3a1-913364724cd6](https://user-images.githubusercontent.com/113705782/197551796-565c234f-ab52-4b96-b9af-560bb7f39a31.jpg)
 ![196427179-7c9d3f6e-347a-4913-a296-fe44ff1880c0](https://user-images.githubusercontent.com/113705782/197551807-c38c3fc4-61e7-44d7-bc68-d4f6c4053372.jpg)
 ![196427186-debc1631-b019-4a03-9fc5-dcaca5cf70da](https://user-images.githubusercontent.com/113705782/197551819-fc5fa4d1-d06e-45fb-94ed-4b9b2105123e.jpg)
+![moi z3817003614924_79383c60de7de6ad503262fc205de0de](https://user-images.githubusercontent.com/113705782/198664895-3640c744-9139-462f-afb5-815f24ecbc31.jpg)
+![moi z3817785439723_f778772ded38117890e4fa7afb6a4674](https://user-images.githubusercontent.com/113705782/198664950-29356447-7eeb-462c-91fe-22987399d1d4.jpg)
+![moi z3817785466512_6304839b40fa6611d545c5edee9edf1b](https://user-images.githubusercontent.com/113705782/198664962-cadb8799-86e3-4f7c-b5eb-3bc2af4f7eac.jpg)
+![moi z3818460560010_e7bd4e7a63bd8b789471e96aaf5a064f](https://user-images.githubusercontent.com/113705782/198664974-e30b4a1f-b934-4fc9-ac5b-4a423f35e441.jpg)
+![moi z3823255792643_9da1ee62457a238d1bb3e15edc3615a2](https://user-images.githubusercontent.com/113705782/198664991-c2c08800-ea06-4f09-9571-790912cc9824.jpg)
+![moi z3825788574507_14a81b29ce3896371f1c919ddd410f20](https://user-images.githubusercontent.com/113705782/198665003-f86eac92-3acf-46ed-be4f-19ffbdc2d550.jpg)
+![moi z3825788870385_16cd64d232b2668c5c1db8c92246d22b](https://user-images.githubusercontent.com/113705782/198665013-adecb807-61dc-45e7-b809-ad5baae9960d.jpg)
+![moi z3825789223662_0aa624b2f9a784155eda6e360e4d5584](https://user-images.githubusercontent.com/113705782/198665028-31406b93-b8bf-4f21-9792-6afd8c5ad08a.jpg)
+![moi z3825813830924_340d6e954f430b3a1f3ae1f28fe249de](https://user-images.githubusercontent.com/113705782/198665044-323e84da-49a3-46b1-9936-8cd0377a0ba8.jpg)
+
 # KCN VSIP 2 MỞ RỘNG
 ![196427729-5da7ed80-5144-4d12-8b81-f6d45a0375e6](https://user-images.githubusercontent.com/113705782/197552190-c6fc2a77-9e06-4638-b4da-9f9630483fb2.jpg)
 ![ruavogele2100](https://user-images.githubusercontent.com/113705782/197552219-b885e825-007a-4353-a106-96399f986bda.jpg)
