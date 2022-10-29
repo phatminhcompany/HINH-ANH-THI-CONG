@@ -214,7 +214,6 @@
 ![moi z3825788870385_16cd64d232b2668c5c1db8c92246d22b](https://user-images.githubusercontent.com/113705782/198665013-adecb807-61dc-45e7-b809-ad5baae9960d.jpg)
 ![moi z3825789223662_0aa624b2f9a784155eda6e360e4d5584](https://user-images.githubusercontent.com/113705782/198665028-31406b93-b8bf-4f21-9792-6afd8c5ad08a.jpg)
 ![moi z3825813830924_340d6e954f430b3a1f3ae1f28fe249de](https://user-images.githubusercontent.com/113705782/198665044-323e84da-49a3-46b1-9936-8cd0377a0ba8.jpg)
-
 # KCN VSIP 2 MỞ RỘNG
 ![196427729-5da7ed80-5144-4d12-8b81-f6d45a0375e6](https://user-images.githubusercontent.com/113705782/197552190-c6fc2a77-9e06-4638-b4da-9f9630483fb2.jpg)
 ![ruavogele2100](https://user-images.githubusercontent.com/113705782/197552219-b885e825-007a-4353-a106-96399f986bda.jpg)
@@ -232,7 +231,6 @@
 ![z3824001945938_78a4246eaa471aa0aea100bf9704c616](https://user-images.githubusercontent.com/113705782/197560575-4126dab7-1667-4990-8283-4987d5452f31.jpg)
 ![z3825378598116_be9d30209e0649e78611b1e5e7cc4566](https://user-images.githubusercontent.com/113705782/197560579-3bc0e908-103e-4d0c-827c-b80e36ea7525.jpg)
 ![z3825378715249_f66c03f18c63e190e7538d3882079587](https://user-images.githubusercontent.com/113705782/197560582-eaf9f2d5-a8d7-4ba0-8e7b-890a56f01c53.jpg)
-
 # KDC GALAXY LONG THƯỢNG . CẦN GIUỘC . LONG AN
 ![z3741567357530_d0485bd16013723bda173a8a6946ebf9](https://user-images.githubusercontent.com/113705782/192100914-58bb2ade-0065-4216-a1db-76ce327464aa.jpg)
 ![z3744067049485_c28e7a6ef21b09442b936f326368ddea](https://user-images.githubusercontent.com/113705782/192100926-a2620570-4ea0-4dbd-b107-36b43e9e47bb.jpg)
@@ -246,7 +244,6 @@
 ![z3805397504989_499d0c24fc39c4849c32361d4efd11b4](https://user-images.githubusercontent.com/113705782/196428376-7f24f6a9-1ccf-403c-a2fa-038fd877422e.jpg)
 ![z3806563182103_9878bfddc727e08ed23ef316fd64ca3d](https://user-images.githubusercontent.com/113705782/196428384-4440b456-6337-4ee0-8189-fbad3a3b4aeb.jpg)
 ![z3808183491637_23a7a3b832321d68407a7b09cf56d427](https://user-images.githubusercontent.com/113705782/196428388-2e236136-3b53-4f07-926c-ae71f7ace1a8.jpg)
-
 # 61C HAU GIANG
 ![z3802598879866_66398b615968c5f76149265b4df5713e](https://user-images.githubusercontent.com/113705782/195990704-13108954-51d1-4bf7-83eb-4ca3dbc35999.jpg)
 ![z3802598891209_8c9d471c40405c318fc833a379a59b74 (1)](https://user-images.githubusercontent.com/113705782/195990706-f3a3853c-9f0f-4f8e-a07e-231a48d64676.jpg)
@@ -292,4 +289,9 @@
 ![z3810925944117_3c740236d743ab2110c721d1ed132671](https://user-images.githubusercontent.com/113705782/197211159-c796185f-1d2e-4bc1-9ac4-79423db12ee3.jpg)
 ![z3810925969106_4084eb692b39ba2fc2c7c5bc82ea2699](https://user-images.githubusercontent.com/113705782/197211168-4214bace-355a-4823-b226-6b103ae34ba6.jpg)
 ![z3810925983497_c59b3070a0ce5f36d875946a3598a1ed](https://user-images.githubusercontent.com/113705782/197211172-4ea90069-70d1-4f50-abe6-47130b193cf8.jpg)
-
+# CẦU NỐI TỈNH TÂY NINH VÀ TỈNH BÌNH DƯƠNG
+![z3838281337056_867855c7f384ab1a90ad65517e8afa21](https://user-images.githubusercontent.com/113705782/198821002-d8c2980b-e223-41ce-906a-7cf2340306b6.jpg)
+![z3838281362508_ecc7977164e8275a8b023f5d6eacdf4c](https://user-images.githubusercontent.com/113705782/198821009-8cd5f398-e1c2-4507-9f8b-d5e46f2d6619.jpg)
+![z3838281372743_229988df3c38700efcbba913e5ff2434](https://user-images.githubusercontent.com/113705782/198821011-ad3127e5-8583-4c0d-be89-0a1ea2d68e67.jpg)
+![z3838281398546_f8427b6888c8a347ee0d61df6c8ac024](https://user-images.githubusercontent.com/113705782/198821014-2888df07-baa3-4e65-9686-fca469afe500.jpg)
+![z3838281426782_2bdca8854d775f68f596e24af7871f75](https://user-images.githubusercontent.com/113705782/198821017-20f0a29f-15f0-4e5a-b40c-4e6c88ef7bef.jpg)
