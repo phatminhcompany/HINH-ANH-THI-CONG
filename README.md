@@ -214,6 +214,13 @@
 ![moi z3825788870385_16cd64d232b2668c5c1db8c92246d22b](https://user-images.githubusercontent.com/113705782/198665013-adecb807-61dc-45e7-b809-ad5baae9960d.jpg)
 ![moi z3825789223662_0aa624b2f9a784155eda6e360e4d5584](https://user-images.githubusercontent.com/113705782/198665028-31406b93-b8bf-4f21-9792-6afd8c5ad08a.jpg)
 ![moi z3825813830924_340d6e954f430b3a1f3ae1f28fe249de](https://user-images.githubusercontent.com/113705782/198665044-323e84da-49a3-46b1-9936-8cd0377a0ba8.jpg)
+![new z3828489510714_fbec93354b5aea363419b86b6f5b69b4](https://user-images.githubusercontent.com/113705782/198834673-04829d0f-f9a4-4948-be2e-cbfe7ff49b76.jpg)
+![new z3831259745420_741754701974de7957bb8f5d4fddc55c](https://user-images.githubusercontent.com/113705782/198834676-ea6bb9fb-55c4-4560-946e-fd6d3f231810.jpg)
+![new z3831259749444_8a9215613c49dac953ed4b59fa9588a2](https://user-images.githubusercontent.com/113705782/198834679-b8313f4c-d868-4e88-be4e-63cfd0e114d1.jpg)
+![new z3833127785715_4368e0902db259a25776171406c89ec8](https://user-images.githubusercontent.com/113705782/198834681-b35c27a8-709b-4876-9eae-7a04c2100e81.jpg)
+![new z3833239390539_d18ec2ab0ac2d23e87a7d682e22b4848](https://user-images.githubusercontent.com/113705782/198834685-aa49623a-ce47-470f-8570-d8005c8c31a2.jpg)
+![new z3833239415993_4d25fdb431da1f00acf62b0924f92aad](https://user-images.githubusercontent.com/113705782/198834687-644882e3-d301-4905-bdbc-7d6eca69d856.jpg)
+
 # KCN VSIP 2 MỞ RỘNG
 ![196427729-5da7ed80-5144-4d12-8b81-f6d45a0375e6](https://user-images.githubusercontent.com/113705782/197552190-c6fc2a77-9e06-4638-b4da-9f9630483fb2.jpg)
 ![ruavogele2100](https://user-images.githubusercontent.com/113705782/197552219-b885e825-007a-4353-a106-96399f986bda.jpg)
@@ -295,3 +302,5 @@
 ![z3838281372743_229988df3c38700efcbba913e5ff2434](https://user-images.githubusercontent.com/113705782/198821011-ad3127e5-8583-4c0d-be89-0a1ea2d68e67.jpg)
 ![z3838281398546_f8427b6888c8a347ee0d61df6c8ac024](https://user-images.githubusercontent.com/113705782/198821014-2888df07-baa3-4e65-9686-fca469afe500.jpg)
 ![z3838281426782_2bdca8854d775f68f596e24af7871f75](https://user-images.githubusercontent.com/113705782/198821017-20f0a29f-15f0-4e5a-b40c-4e6c88ef7bef.jpg)
+![z3837689689347_4c074349716a6100a878b7fec0dfdc0e](https://user-images.githubusercontent.com/113705782/198834735-f4e2c2f7-14d0-4756-b90f-df8ab3095142.jpg)
+![z3839219131066_5bdae1870fba56691db14902a106fd71](https://user-images.githubusercontent.com/113705782/198834742-a123576c-0cc8-4618-82b2-a510be4344a3.jpg)
