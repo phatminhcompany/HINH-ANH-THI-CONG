@@ -239,10 +239,11 @@
 ![z3825378598116_be9d30209e0649e78611b1e5e7cc4566](https://user-images.githubusercontent.com/113705782/197560579-3bc0e908-103e-4d0c-827c-b80e36ea7525.jpg)
 ![z3825378715249_f66c03f18c63e190e7538d3882079587](https://user-images.githubusercontent.com/113705782/197560582-eaf9f2d5-a8d7-4ba0-8e7b-890a56f01c53.jpg)
 # KDC GALAXY LONG THƯỢNG . CẦN GIUỘC . LONG AN
-![z3741567357530_d0485bd16013723bda173a8a6946ebf9](https://user-images.githubusercontent.com/113705782/192100914-58bb2ade-0065-4216-a1db-76ce327464aa.jpg)
-![z3744067049485_c28e7a6ef21b09442b936f326368ddea](https://user-images.githubusercontent.com/113705782/192100926-a2620570-4ea0-4dbd-b107-36b43e9e47bb.jpg)
-![z3746871129027_950ce7a89a59f4e8d925acc5e203676d](https://user-images.githubusercontent.com/113705782/192100933-ef410037-9eb8-4479-83d7-1025b4a4ad20.jpg)
-![z3746871156438_3ca4a9ba3309edc395ec7e119c61ec16](https://user-images.githubusercontent.com/113705782/192100934-4330be6e-b2ec-4178-b45b-53a747ea0943.jpg)
+![192100914-58bb2ade-0065-4216-a1db-76ce327464aa](https://user-images.githubusercontent.com/113705782/201481076-83956a03-75b9-480f-bfe9-83056a2e67c3.jpg)
+![192100926-a2620570-4ea0-4dbd-b107-36b43e9e47bb](https://user-images.githubusercontent.com/113705782/201481080-92990e48-e850-4c63-baea-99b0531e396a.jpg)
+![192100933-ef410037-9eb8-4479-83d7-1025b4a4ad20](https://user-images.githubusercontent.com/113705782/201481082-9c7eadd1-6e96-4338-aed5-824116756a69.jpg)
+![192100934-4330be6e-b2ec-4178-b45b-53a747ea0943](https://user-images.githubusercontent.com/113705782/201481085-d8b419aa-c16b-4fc4-84f2-93b4eb9e4489.jpg)
+
 # KCN XUYÊN Á . ĐỨC HOÀ . LONG AN
 ![196428350-181c874f-7264-4a36-996f-7a911dfef605](https://user-images.githubusercontent.com/113705782/200156856-22c9331e-2bf8-49b6-9f7b-381aa76c7c6e.jpg)
 ![196428364-0ba233f6-5699-476b-b7bd-99ff748ff148](https://user-images.githubusercontent.com/113705782/200156859-28533054-ddbe-436f-86ee-1d6c9a5fa7f3.jpg)
@@ -262,42 +263,47 @@
 ![z3858322444079_4768d48b89a4102cd0061f7fe8837102](https://user-images.githubusercontent.com/113705782/200156012-d2e0936e-771f-4be7-b485-b3fc080dcafe.jpg)
 
 # 61C HAU GIANG
-![z3802598879866_66398b615968c5f76149265b4df5713e](https://user-images.githubusercontent.com/113705782/195990704-13108954-51d1-4bf7-83eb-4ca3dbc35999.jpg)
-![z3802598891209_8c9d471c40405c318fc833a379a59b74 (1)](https://user-images.githubusercontent.com/113705782/195990706-f3a3853c-9f0f-4f8e-a07e-231a48d64676.jpg)
-![z3802598891209_8c9d471c40405c318fc833a379a59b74](https://user-images.githubusercontent.com/113705782/195990707-dc46e006-925a-4a64-9656-51ae31e60fc5.jpg)
-![z3802598893979_24f27c7f14a54e70e5a5a58fd04f8d90](https://user-images.githubusercontent.com/113705782/195990709-2644026c-fbd0-47b8-8aef-62b6b542f2df.jpg)
-![z3802598905612_8d9916f2e43dcf2f29b55b407c2c7ed7](https://user-images.githubusercontent.com/113705782/195990710-b6c65806-0519-41f5-9502-1ffc16f1bb83.jpg)
-![z3802598912461_ea286e2a509dc5fe6f99f962e6ccab3d](https://user-images.githubusercontent.com/113705782/195990711-763a460c-4de1-41ec-94d5-c4f3540d6ca4.jpg)
-![z3802598920548_2976eaf95f4433354456dae62afa1efa](https://user-images.githubusercontent.com/113705782/195990713-8c4704ce-a47c-47c0-90e8-256b8fa59ba7.jpg)
-![z3802598935714_5f97fba3e943d4e43f1082cc22fb45ae](https://user-images.githubusercontent.com/113705782/195990716-233012ac-bc17-40a6-aaba-9c356198a29e.jpg)
-![z3802598961320_901b63341ec76cf4a7ccf6286ffa43b0](https://user-images.githubusercontent.com/113705782/195990717-2af03b6b-b9b1-4e3a-84e4-d201b40e7b44.jpg)
-![z3802598976797_51870917e791e3b5af00e33109c3334b](https://user-images.githubusercontent.com/113705782/195990718-b4e5b989-4515-4af4-ad55-213cd8960c89.jpg)
-![z3802598986610_3cc565a4df43f8a3c3e6ff19d7d7e86e](https://user-images.githubusercontent.com/113705782/195990720-503bda9b-5c73-42fc-b273-43e63e2724a4.jpg)
+![195990704-13108954-51d1-4bf7-83eb-4ca3dbc35999](https://user-images.githubusercontent.com/113705782/201481129-36900eca-e862-4dfb-be73-b125bfbffa24.jpg)
+![195990706-f3a3853c-9f0f-4f8e-a07e-231a48d64676](https://user-images.githubusercontent.com/113705782/201481130-02e563e3-9aff-4771-b64f-310d2a9fe6d8.jpg)
+![195990707-dc46e006-925a-4a64-9656-51ae31e60fc5](https://user-images.githubusercontent.com/113705782/201481131-d065723d-e5d2-489d-acbd-eb179cdf33d5.jpg)
+![195990709-2644026c-fbd0-47b8-8aef-62b6b542f2df](https://user-images.githubusercontent.com/113705782/201481133-d03dbc38-9415-4156-9557-72425001e3f7.jpg)
+![195990710-b6c65806-0519-41f5-9502-1ffc16f1bb83](https://user-images.githubusercontent.com/113705782/201481136-4d25b2d3-8d14-4e73-8ff8-1242bfea65dd.jpg)
+![195990711-763a460c-4de1-41ec-94d5-c4f3540d6ca4](https://user-images.githubusercontent.com/113705782/201481137-bbd1b336-d9e8-48f6-95b1-29eaf4e634b0.jpg)
+![195990713-8c4704ce-a47c-47c0-90e8-256b8fa59ba7](https://user-images.githubusercontent.com/113705782/201481141-80e9d77a-bd9b-486b-a496-5ea6d34be141.jpg)
+![195990716-233012ac-bc17-40a6-aaba-9c356198a29e](https://user-images.githubusercontent.com/113705782/201481143-13acb443-89b4-487c-86a8-1f0911e9ca98.jpg)
+![195990717-2af03b6b-b9b1-4e3a-84e4-d201b40e7b44](https://user-images.githubusercontent.com/113705782/201481145-0c504935-30ba-4697-86a2-c3ea93d9a10d.jpg)
+![195990718-b4e5b989-4515-4af4-ad55-213cd8960c89](https://user-images.githubusercontent.com/113705782/201481151-84416ef5-febd-4a9c-a9f9-bb1e7b9c20c3.jpg)
+![195990720-503bda9b-5c73-42fc-b273-43e63e2724a4](https://user-images.githubusercontent.com/113705782/201481153-97db8256-5961-473a-b443-653ec43cdc24.jpg)
+
 # CÔNG TY XÂY LẮP MIỀN NAM : NGUYỄN HUỆ VÀ LÝ THƯỜNG KIỆT TP.VI THANH . TỈNH HẬU GIANG. 
-![z3802803932510_ab8e4971669eff3e5b5937adaae334dc](https://user-images.githubusercontent.com/113705782/195993248-ced4aaea-2833-4c17-81b7-2a79cc281876.jpg)
-![z3802803951980_93a3b875a152b31de08588cd7f5b7527](https://user-images.githubusercontent.com/113705782/195993259-1849d207-715d-4f90-b87d-747898eed7ab.jpg)
-![z3802803957424_2772c5ab0db9d3d6720cf63c8e01d28b](https://user-images.githubusercontent.com/113705782/195993261-d32947db-52c7-4685-9e58-4284aaab948d.jpg)
+![195993248-ced4aaea-2833-4c17-81b7-2a79cc281876](https://user-images.githubusercontent.com/113705782/201481304-a8d395d0-a59b-4e55-a586-ff7c7f6232af.jpg)
+![195993259-1849d207-715d-4f90-b87d-747898eed7ab](https://user-images.githubusercontent.com/113705782/201481310-d206aa52-987d-47b2-b412-3f79c53d5ba9.jpg)
+![195993261-d32947db-52c7-4685-9e58-4284aaab948d](https://user-images.githubusercontent.com/113705782/201481311-6bc0d575-de74-4a33-9003-10ee154121ea.jpg)
+
 # CA MAU
-![z3802598834249_9d53925e67d8631e9d0ee526047f8f59](https://user-images.githubusercontent.com/113705782/195990990-166b6226-9ad6-4244-a7e7-ab32697e52c4.jpg)
-![z3802598842914_b8ff7a258232b4cce5c62621f1ddc840](https://user-images.githubusercontent.com/113705782/195990997-c104844f-f950-450e-98e3-1225cf22d364.jpg)
-![z3802598853751_1f281d13564a26df91e59b524121f8fa](https://user-images.githubusercontent.com/113705782/195991003-7a272bfa-d76d-4e5e-8fb8-c588e1788230.jpg)
-![z3802598862295_75cc5dee5c2f58ea1472e2f4af5da9e5](https://user-images.githubusercontent.com/113705782/195991010-3ca5df75-98a0-4677-8f75-7304601d3469.jpg)
-![z3802598872407_9d2c0f0df56d7a46132afdfa10b0ddd9](https://user-images.githubusercontent.com/113705782/195991013-6a1ddd37-afef-4529-894a-ba774194db5c.jpg)
+![195990990-166b6226-9ad6-4244-a7e7-ab32697e52c4](https://user-images.githubusercontent.com/113705782/201481344-ca9645e0-279a-4ec7-99ea-984b9738b1a9.jpg)
+![195990997-c104844f-f950-450e-98e3-1225cf22d364](https://user-images.githubusercontent.com/113705782/201481350-a37095ed-fb5f-4ab4-b089-268c8e53d472.jpg)
+![195991003-7a272bfa-d76d-4e5e-8fb8-c588e1788230](https://user-images.githubusercontent.com/113705782/201481352-a0cffe92-f5f2-4abc-9a63-fefc2fa821e1.jpg)
+![195991010-3ca5df75-98a0-4677-8f75-7304601d3469](https://user-images.githubusercontent.com/113705782/201481358-1b8ef15a-24c0-4d4c-a5fd-d64369fb0b7b.jpg)
+![195991013-6a1ddd37-afef-4529-894a-ba774194db5c](https://user-images.githubusercontent.com/113705782/201481361-5ee8bfb9-10e7-411f-bffe-56d0a775c6b7.jpg)
+
 # NHÀ XƯỞNG LOGISTIC VALLEY LÔ T1~T10, ĐƯỜNG SỐ 04, KHU CÔNG NGHIỆP AN PHƯỚC, XÃ AN PHƯỚC, LONG THÀNH , ĐỒNG NAI
-![2256df36a37f4f21166e](https://user-images.githubusercontent.com/113705782/196424186-2a94b7e9-9ac3-41e3-96f0-06ed7140507a.jpg)
-![hinhanhthicong](https://user-images.githubusercontent.com/113705782/196424202-1deb8471-207f-4ff3-87a4-f10eb3e24545.jpg)
-![hinhanhthicong1](https://user-images.githubusercontent.com/113705782/196424216-eafc12f3-6b47-4213-8b5f-7dca2d8d69c2.jpg)
-![hinhanhthicong2](https://user-images.githubusercontent.com/113705782/196424230-1ec06b9b-ac58-42e6-ad49-09d256c11fa2.jpg)
-![hinhanhthicong3](https://user-images.githubusercontent.com/113705782/196424237-39686039-415a-4ca9-a378-a0aaf4c744d4.jpg)
-![hinhanhthicong5](https://user-images.githubusercontent.com/113705782/196424257-5a98c410-79d3-43c6-b3d0-f34a866383ef.jpg)
- ![hinhanhthicong8](https://user-images.githubusercontent.com/113705782/196424315-7e69aeab-652b-4790-8345-d0ce303f3450.jpg)
-![hinhanhthicong6](https://user-images.githubusercontent.com/113705782/196424273-2a367c0b-53d1-4d76-8075-ba4d938315c0.jpg)
-![hinhanhthicong7](https://user-images.githubusercontent.com/113705782/196424292-50d0c6bd-ad67-4f42-bfa1-a5ae9851a157.jpg)
+![196424186-2a94b7e9-9ac3-41e3-96f0-06ed7140507a](https://user-images.githubusercontent.com/113705782/201481696-ba1f257a-274f-43b9-a808-c63d80813ca3.jpg)
+![196424216-eafc12f3-6b47-4213-8b5f-7dca2d8d69c2](https://user-images.githubusercontent.com/113705782/201481701-21beca25-99a2-492a-a7a2-c920dfa78710.jpg)
+![196424230-1ec06b9b-ac58-42e6-ad49-09d256c11fa2](https://user-images.githubusercontent.com/113705782/201481707-44198e62-6e59-476f-a5a3-7795f84c457a.jpg)
+![196424237-39686039-415a-4ca9-a378-a0aaf4c744d4](https://user-images.githubusercontent.com/113705782/201481710-eafb90a9-0b8b-4048-adce-e24ddcc9d508.jpg)
+![196424257-5a98c410-79d3-43c6-b3d0-f34a866383ef](https://user-images.githubusercontent.com/113705782/201481712-9c1045e9-90c3-4b08-9838-ae9fc937b0df.jpg)
+![196424273-2a367c0b-53d1-4d76-8075-ba4d938315c0](https://user-images.githubusercontent.com/113705782/201481717-c732915a-deab-4c3e-b2af-794ed5e91019.jpg)
+![196424292-50d0c6bd-ad67-4f42-bfa1-a5ae9851a157](https://user-images.githubusercontent.com/113705782/201481719-eea897c3-0a14-477d-b3e3-0b9fc21902fa.jpg)
+![196424315-7e69aeab-652b-4790-8345-d0ce303f3450](https://user-images.githubusercontent.com/113705782/201481724-0f9e0246-8986-431a-b35f-b4c69765d3fc.jpg)
+
 # SWANBAY & SWANPARK  , NHƠN TRẠCH , ĐỒNG NAI
-![swanbay nhơn trạch](https://user-images.githubusercontent.com/113705782/196426083-8396d9ad-9a5a-42fd-a6e6-bb2ea0abc72a.jpg)
-![swanbay nhơn trạch1](https://user-images.githubusercontent.com/113705782/196426099-fca117b1-9750-4809-8638-f1c34bc23928.jpg)
+![196426083-8396d9ad-9a5a-42fd-a6e6-bb2ea0abc72a](https://user-images.githubusercontent.com/113705782/201481385-a167136a-9640-4dc3-a914-86f0b4f4bb2f.jpg)
+![196426099-fca117b1-9750-4809-8638-f1c34bc23928](https://user-images.githubusercontent.com/113705782/201481390-961c1a1f-b8e4-4b5c-a146-7b89f543d848.jpg)
+
 # CẦU CHÉO , TIỀN GIANG
-![caucheo tiengiang](https://user-images.githubusercontent.com/113705782/196425314-9ecdc6ac-a1a0-4adb-9d62-e4c1fe26d1fd.jpg)
+![196425314-9ecdc6ac-a1a0-4adb-9d62-e4c1fe26d1fd](https://user-images.githubusercontent.com/113705782/201481395-b3f85f58-1fc9-43ad-aa3f-f48a27fe3403.jpg)
+
 # NHÀ XƯỞNG CÔNG TY HANTEX  , TRẢNG BÀNG , TÂY NINH
 ![196430036-5453722f-b250-4a10-9abc-073d26b7a2b7](https://user-images.githubusercontent.com/113705782/200154834-3d64e7cb-f163-4407-b567-f8ef8d6ead4b.jpg)
 ![196430045-57f19068-0fda-4c5e-aabd-8e740868ced3](https://user-images.githubusercontent.com/113705782/200154837-f4ee9ba7-2979-4aa3-b21b-edf7c7a7d70e.jpg)
@@ -349,6 +355,15 @@
 ![MOI z3847386278258_a6d70a8ffaec01dc40d4e246eff4cbdc](https://user-images.githubusercontent.com/113705782/200156553-7652fa32-4914-434c-b563-515790c2a31e.jpg)
 ![MOI z3847495854055_620e025eb054f7146d2309b4a635c0fc](https://user-images.githubusercontent.com/113705782/200156563-897e4ef6-32d0-4ece-bd00-8512040cbab2.jpg)
 ![MOI z3849239832574_aa2e7e11e03bf1a4f675af5d259db289](https://user-images.githubusercontent.com/113705782/200156577-bc313de6-ff93-4e62-9218-f36ecd5f88a9.jpg)
+![z3874083309325_38321bea90e76799331f2ca3049bce26](https://user-images.githubusercontent.com/113705782/201481533-5f16d738-3770-4b00-908c-b88f5e3111b1.jpg)
+![z3874202995333_2351b76977edaad686666b50981f613a](https://user-images.githubusercontent.com/113705782/201481550-def1acbc-ae28-41c6-a29d-83d7509a1468.jpg)
+![z3874203039648_b8030b587afe0aee19fe67c25bfe43ba](https://user-images.githubusercontent.com/113705782/201481554-204d9b9c-feda-4894-a48b-8606d1c32049.jpg)
+![z3874203191501_cbf21f6e7748d6fda4c350bf0cf9a5f7](https://user-images.githubusercontent.com/113705782/201481562-b07b5ea3-0f0e-4e42-aec6-55134a2ff5de.jpg)
+![z3874662812174_e08dca567fdf7c74aeb214f0451d4fc1](https://user-images.githubusercontent.com/113705782/201481569-e498f1f0-ac93-45b6-abec-28d7a505bf62.jpg)
+![z3874878143032_bf5ddea0f30e63d80e9edeea1111080e](https://user-images.githubusercontent.com/113705782/201481572-63e47eca-6e3d-4d1a-839f-94db0ec6bfed.jpg)
+![z3874878163799_b56e94e1a78af0f1061c46e0106dd45f](https://user-images.githubusercontent.com/113705782/201481579-cc2a2b42-41a0-4ac0-a746-51ea7eab9615.jpg)
+![z3875107679513_022148a6c6233c95e4b401f9b9b2efaa](https://user-images.githubusercontent.com/113705782/201481590-18868ce4-7c3b-4781-9421-796ca8b5b678.jpg)
+![z3875107698840_d16f3b3ccaea0d8f5f993d0cc5a8724f](https://user-images.githubusercontent.com/113705782/201481591-a02a1b5c-1457-4ec8-864b-eb91f6367eb5.jpg)
 
 # KHU DU LỊCH SINH THÁI GÁO GIỒNG CAO LÃNH ĐỒNG THÁP
 ![z3858372934298_34ec26859aa8751dbd6c62a62264e8fa](https://user-images.githubusercontent.com/113705782/200153714-b328a6fb-6235-4d1c-bc72-15ce62dcb2a2.jpg)
@@ -362,3 +377,7 @@
 ![z3848713613888_05bb348e6e00eea9cb940eeb8c2260de](https://user-images.githubusercontent.com/113705782/200155824-b7574272-a610-49f1-a6fd-8615f0828848.jpg)
 ![z3851005576157_13bcaa79a89fa9e972dda3b4114673fd](https://user-images.githubusercontent.com/113705782/200155834-e470bc7d-3036-456b-b7a3-b3b451fcaea1.jpg)
 ![z3851005605393_4869f3d4b4b97e387addf331ff2b1685](https://user-images.githubusercontent.com/113705782/200155836-88ab1616-cff6-4d1b-8aa6-f8b9ea897865.jpg)
+![z3858783346424_0e8be3ed5dce610a4b3d2dd5bb4fb8cd](https://user-images.githubusercontent.com/113705782/201481449-cecbc574-ab91-4ac8-ad8d-828dcbef36b9.jpg)
+![z3858783349099_fc383f2dfc17a0eab240315787fc5237](https://user-images.githubusercontent.com/113705782/201481456-296b283f-6315-436b-afaf-31131a9f7568.jpg)
+![z3871811474797_0987d66289ebe5db47dc4dce01008e66](https://user-images.githubusercontent.com/113705782/201481461-6af1a6e1-7cc9-44d5-a741-f361b95d51de.jpg)
+![z3874980506499_cf5c3a0ed91c3d23f748d6a901ec01b6](https://user-images.githubusercontent.com/113705782/201481464-68147346-d95c-4791-9f9a-fbfb2b3449b0.jpg)
