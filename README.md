@@ -475,10 +475,13 @@
 ![z3891397954191_8e0c0a16d9915eccba7616691301ed57](https://user-images.githubusercontent.com/113705782/202856190-03b4ca8f-f9fa-4b27-a737-fbf0848ed044.jpg)
 # GS 10 . TRUNG TÂM HÀNH CHÍNH DĨ AN
 ![z3903377328212_c69aea192f2cfd6705e7ef4c6aa3a702](https://user-images.githubusercontent.com/113705782/203550351-2535f202-94e3-4ba0-a4c7-815aff63ea75.jpg)
+![z3910124072480_54800616b2936e01ad46a1d22a6a9249](https://user-images.githubusercontent.com/113705782/205490581-54dbe552-7e75-492b-8980-e702aeae6bc3.jpg)
+![z3910124078255_eb6c22ce577446bf8ca496f611499dca](https://user-images.githubusercontent.com/113705782/205490586-4b5408d9-1371-4679-bccb-aa41f425e8ac.jpg)
 # TRẦN HƯNG ĐẠO , HUYỆN THÁP MƯỜI , ĐỒNG THÁP
-![z3900911096935_f9255f02b3c493b4d8ee09a271aec9bc](https://user-images.githubusercontent.com/113705782/203550533-2f398208-1e95-4505-93bf-b93c6ffc5935.jpg)
-![z3900911140437_7610cb8b84b55dd55197898f8c15d9ed](https://user-images.githubusercontent.com/113705782/203550552-ba4757be-32de-445f-a9de-eae274bb6130.jpg)
-![z3900911154798_d79f87f5401fdb1fc865b22cb0428f1b](https://user-images.githubusercontent.com/113705782/203550571-498d6316-492f-4680-8f5c-09a3d8eff4ee.jpg)
+![z3900911096935_f9255f02b3c493b4d8ee09a271aec9bc](https://user-images.githubusercontent.com/113705782/205492813-267bada7-4a09-474c-b56b-91828719efb2.jpg)
+![z3900911140437_7610cb8b84b55dd55197898f8c15d9ed](https://user-images.githubusercontent.com/113705782/205492816-c346cb70-c322-4c30-abdf-6bd36fb305f7.jpg)
+![z3900911154798_d79f87f5401fdb1fc865b22cb0428f1b](https://user-images.githubusercontent.com/113705782/205492818-5f840d3e-2bb8-4895-951f-15e03fcb957b.jpg)
+
 ![z3921504038958_4cea5955c5a149cb2b89c14f233c6068](https://user-images.githubusercontent.com/113705782/205491826-37ca3fd6-06c8-4969-9629-ef4a9949409c.jpg)
 ![z3925193723806_4e22a255e9c04f46bdf0ef1aa8c7848b](https://user-images.githubusercontent.com/113705782/205491830-f37d4e9b-d843-4254-908f-b2af48d16f45.jpg)
 ![z3925193752256_003c353b5503e1938d163bd48b78d2e3](https://user-images.githubusercontent.com/113705782/205491835-9c826854-4a31-4348-aa0c-4f9326f1f0b9.jpg)
@@ -499,9 +502,6 @@
 ![z3906934740121_0512ad45134c56450e609f0090934b6d](https://user-images.githubusercontent.com/113705782/205490472-8dd823b7-3176-4711-8772-f8d77eedad6c.jpg)
 ![z3906934757301_eace98eca56c58400f75db43241264f4](https://user-images.githubusercontent.com/113705782/205490473-e43fc947-5a2b-419a-a89b-c906dc9cefa5.jpg)
 ![z3906934766789_fd3627f6cc803509c4a01672d637551e](https://user-images.githubusercontent.com/113705782/205490474-86185099-dc9b-48bf-aab7-21ba32ab88ad.jpg)
-# GS10 , TT.HC. DĨ AN
-![z3910124072480_54800616b2936e01ad46a1d22a6a9249](https://user-images.githubusercontent.com/113705782/205490581-54dbe552-7e75-492b-8980-e702aeae6bc3.jpg)
-![z3910124078255_eb6c22ce577446bf8ca496f611499dca](https://user-images.githubusercontent.com/113705782/205490586-4b5408d9-1371-4679-bccb-aa41f425e8ac.jpg)
 # LÊ VĂN CHÍ
 ![z3924092282596_aa7d107c316f58dba7b4e3e0bc3c0ae1](https://user-images.githubusercontent.com/113705782/205491035-6fa673f2-42f1-41ee-b44f-f8f384a177bc.jpg)
 ![z3924092292353_1d057edb575af368580d8a0aa2d2c479](https://user-images.githubusercontent.com/113705782/205491038-eaee44ce-1001-4555-b296-148bae037bc8.jpg)
