@@ -597,4 +597,11 @@
 ![z3954313703941_b587eafe3e211044fcdfa72d89e2e9dd](https://user-images.githubusercontent.com/113705782/207077572-a8bae08e-8822-4e36-937a-47df3202bb0d.jpg)
 ![z3954313722963_ef3a26d5329674b22d126630e030475e](https://user-images.githubusercontent.com/113705782/207077577-ad0406d0-720f-418b-9f7e-47f860f8edf5.jpg)
 ![z3954313740561_d9f1a2926e003d6ac5895d9022b1bc97](https://user-images.githubusercontent.com/113705782/207077585-06230ed8-a834-43f4-a8a9-856234b60571.jpg)
+# GÓI 1.11 BAN ODA .CẦN THƠ
+![41 5 2 GOI 1 11 ODA CANTHO 001](https://user-images.githubusercontent.com/113705782/236673538-e5004ed7-1115-4575-8605-51581799c511.jpg)
+![41 5 2 GOI 1 11 ODA CANTHO 002](https://user-images.githubusercontent.com/113705782/236673545-ef8cdf89-4b4f-42f6-a3f5-ff5ac21a63f4.jpg)
+![41 5 2 GOI 1 11 ODA CANTHO 003](https://user-images.githubusercontent.com/113705782/236673549-3f9ac625-9e88-47fc-b7d4-0e6c17c16c60.jpg)
+![41 5 2 GOI 1 11 ODA CANTHO 004](https://user-images.githubusercontent.com/113705782/236673551-b47a7c4e-e2b1-4a56-b904-91ed0af6a798.jpg)
+![41 5 2 GOI 1 11 ODA CANTHO 005](https://user-images.githubusercontent.com/113705782/236673554-d2c65e30-3be0-47ea-99a9-754759d1a233.jpg)
+![41 5 2 GOI 1 11 ODA CANTHO 006](https://user-images.githubusercontent.com/113705782/236673556-8aaa8240-07fc-48e5-b660-6e2be6cf2af5.jpg)
 
